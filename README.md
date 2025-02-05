@@ -1,4 +1,4 @@
-# 2024年最新BigBoxHost优惠码-整理汇总BigBoxHost优惠活动
+# 2025年最新BigBoxHost优惠码-整理汇总BigBoxHost优惠活动
 
 ## BigBoxHost 介绍
 BigBoxHost，隶属于BigBox Softwares LLC Company，自2010年以来一直为个人和企业提供优质的网络托管服务。BigBoxHost以合理的价格提供杰出的服务，不断创新和升级服务以满足客户需求，且不额外收费。
